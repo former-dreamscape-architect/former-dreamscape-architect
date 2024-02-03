@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @former-dreamscape-architect.
-- 👀 I’m interested in...
+- 👀 I’m interested in...learning.
 - 🌱 I’m currently learning ...To cope with life. and maybe a bit of unreal. I basically have no experience except 20 years of thinking about making games.
 - 💞️ I’m looking to collaborate on ...a special game.
 - 📫 How to reach me ...Just hmu man like I'm on fb and stuff jeffybot5000
